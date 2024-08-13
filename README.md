@@ -44,7 +44,7 @@ Si deseas contribuir al proyecto, por favor sigue estos pasos:
 
 ### **Contacto**
 
-| ![Tu Imagen de Perfil](https://www.google.com/url?sa=i&url=https%3A%2F%2Fes.123rf.com%2Fphoto_203866553_el-robot-astronauta-se-sienta-con-una-laptop-busca-en-internet-navegaci%25C3%25B3n-por-internet-ia.html&psig=AOvVaw18umyNBdtPYE2_s_90IFsb&ust=1723667239857000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCNjDpf3m8ocDFQAAAAAdAAAAABAF) | **Contacto:**<br>Email: [coellog634@gmail.com](mailto:coellog634@gmail.com)<br>LinkedIn: [Gustavo Coello](https://www.linkedin.com/in/gustavo-coello-01039b270) |
+| ![Tu Imagen de Perfil](https://http2.mlstatic.com/D_NQ_NP_902772-MLM76358692268_052024-O.webp) | **Contacto:**<br>Email: [coellog634@gmail.com](mailto:coellog634@gmail.com)<br>LinkedIn: [Gustavo Coello](https://www.linkedin.com/in/gustavo-coello-01039b270) |
 |-----------------------------------------------|----------------------------------------------------------------------------------------------------------------------------|
 |                                               |                                                                                                                            |
 
